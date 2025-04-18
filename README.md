@@ -1,4 +1,3 @@
-# JSkrpp
 
 ## About me:
 
